@@ -1,1 +1,0 @@
-** INSTRUCTOR DEMO **
